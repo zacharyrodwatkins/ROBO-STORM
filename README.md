@@ -1,2 +1,2 @@
 # ROBO-STORM
-Best goddamn robot this side the Mississippi 
+Best goddamn robot this side  of the Mississippi 
